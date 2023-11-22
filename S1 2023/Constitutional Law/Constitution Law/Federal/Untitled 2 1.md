@@ -1,4 +1,0 @@
-[[Major E]]
-
-
-#review 
